@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Mike93893
 - 👀 I’m interested in sports,gaming,music
 - 🌱 I’m currently learning to speak russian
-- 💞️ I’m looking to collaborate on youtube
 - 📫 How to reach me on instagram
 - I'm looking for someone to talk with 
 <!---
